@@ -1,3 +1,9 @@
 ## Hi there 👋
 
-Maths Enjoyer
+Project Ideas (WIP)
+
+Interests:
+Music
+Mathematics
+Computer Science/Programming
+
